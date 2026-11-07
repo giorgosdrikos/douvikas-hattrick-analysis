@@ -1,0 +1,1 @@
+# douvikas-hattrick-analysis
